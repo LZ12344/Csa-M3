@@ -1,1 +1,9 @@
-This question is about feeding the bird. There is a 5 percent chance that the bear will come and eat the food in the feeder. 
+2024 FRQ #1
+
+This question is about...
+
+Struggles with this question...
+
+Prior expereiences that helped...
+
+What I learned by doing this question...This question is about feeding the bird. There is a 5 percent chance that the bear will come and eat the food in the feeder. 
